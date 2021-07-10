@@ -31,4 +31,10 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Empathetic to differences in moral tastebuds
 * Adult to adult
 * Avoidance of the drama triangle
-* 
+* Dialectic synthesis
+
+
+
+
+Resources:
+Daniel Schmachtenberger - A few guidelines that tend to support the quality of dialogue: https://www.facebook.com/notes/1193731357691205/
