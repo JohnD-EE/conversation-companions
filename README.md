@@ -25,3 +25,10 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Bring Wisdom to Interactions
 * Optimised curiosity
 * Challenge accepted wisdom
+* Polite dissent
+* Avoidance of groupthink
+* Atuned and aware to cognitive bias
+* Empathetic to differences in moral tastebuds
+* Adult to adult
+* Avoidance of the drama triangle
+* 
