@@ -24,4 +24,4 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Use of Tools and Models
 * Bring Wisdom to Interactions
 * Optimised curiosity
-* 
+* Challenge accepted wisdom
