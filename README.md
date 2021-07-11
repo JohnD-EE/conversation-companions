@@ -13,10 +13,12 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Fastidious pursuit of the truth
 * Interactions, connection, learning, exploration, curiosity...
 * Lost Connections (Johan Hari) 
-* 
 
 ### How
+* Always begin with definitions
+* Periodic emotional check-ins
 * Vulnerability
+* Earnest intent
 * Deep challenging thought
 * Unhurried - no interruptions
 * Self-honesty
@@ -75,6 +77,15 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Give the benefit of the doubt, even when a position sounds utterly stupid, find perspective, find the grain of truth
 * "I think I might have misunderstood because it sounded like you said X and I imagine that might not be what you actually meant." (Schmachtenberger)
 * Acknowledge what you do agree or resonate with in their position before addressing where there are differences (Schmachtenberger)
+* Develop a 'win and help win' attitude, not winner takes all
+* Game B vs Game A - avoid game theoretic brinkmanship
+* Apply MRI - Most Respectful Interpretation
+* Don't get frustrated by people who can't understand something, or can't articulate something.  Help them.
+* Embrace diversity, go beyond the obvious such as skin colour, sexuality or gender - consider neurodiversity, diversity of opinion, diversity of capability. Use diversity to take the conversation into unexpected areas.
+* Avoid generalisations
+* Open-mindedness vs narrow-mindedness
+* Don't conflate ignorance with malice - everyone's backstory is different - bring people into the light, don't judge their lack of opportunity to know
+* Be mindful and show compassion
 * 
 
 
