@@ -35,7 +35,8 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Good faith vs bad faith
 * Constructive arguments
 * Unhurried
-
+* Conscious conversations
+* 
 
 
 
