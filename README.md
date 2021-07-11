@@ -32,6 +32,8 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Adult to adult
 * Avoidance of the drama triangle
 * Dialectic synthesis
+* Good faith vs bad faith
+* 
 
 
 
