@@ -87,9 +87,11 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Don't conflate ignorance with malice - everyone's backstory is different - bring people into the light, don't judge their lack of opportunity to know
 * Be mindful and show compassion
 * Accept our human fallability - preserve our ignorance, indignity, incomprehension, and general cluelessness - keep humble.
+* Practice Deep Listening - think about what is at stake for the other person, try to understand what matters to them, not what I think matters.
 
 
 
 
 Resources:
 Daniel Schmachtenberger - A few guidelines that tend to support the quality of dialogue: https://www.facebook.com/notes/1193731357691205/
+Wandering Ambivert - Deep Listening: https://wanderingambivert.wordpress.com/2021/07/12/deep-listening/
