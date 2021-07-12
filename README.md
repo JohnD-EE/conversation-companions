@@ -86,7 +86,7 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Open-mindedness vs narrow-mindedness
 * Don't conflate ignorance with malice - everyone's backstory is different - bring people into the light, don't judge their lack of opportunity to know
 * Be mindful and show compassion
-* 
+* Accept our human fallability - preserve our ignorance, indignity, incomprehension, and general cluelessness - keep humble.
 
 
 
