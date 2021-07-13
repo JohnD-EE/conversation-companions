@@ -88,6 +88,7 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Be mindful and show compassion
 * Accept our human fallability - preserve our ignorance, indignity, incomprehension, and general cluelessness - keep humble.
 * Practice Deep Listening - think about what is at stake for the other person, try to understand what matters to them, not what I think matters.
+* Have an open mind to possibility, comfort with the unknown and the ambiguous.
 
 
 
