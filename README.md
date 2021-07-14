@@ -5,6 +5,19 @@ The experience of the global response to Covid-19 was for many people a lonely a
 
 Always and everywhere on Earth, people have common needs. They want to matter, the want to be listened to, they want to feel a connection to other people, to nature, and to some bigger meaning.
 
+### Vision/Strategy
+* Create venues for facilitated conversations
+* Maintian principle based models for facilitated conversations
+* Conversation subjects will be controversial or involve complexity and ambiguity
+* Create a public and private conversation spaces
+* Public conversations will focus on controversial events, narratives, and moral dichotomies
+* Private conversations will be 'paid for' facilitated events for companies and organisations
+* All conversations will adhere to the principle based conversation models
+* The aim is to acheive more nuanced perspectives, more nuanced outcomes, through wiser and more inclusive conversations
+
+### Process
+* Build
+
 ### Why:
 * The enjoyment of shared curiosity
 * Exploring ideas together
