@@ -104,7 +104,7 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Have an open mind to possibility, comfort with the unknown and the ambiguous.
 * Plurality of views
 * Testing theories
-
+* Free exchange of ideas
 
 
 
