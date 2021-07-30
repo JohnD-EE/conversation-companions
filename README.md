@@ -106,6 +106,7 @@ Always and everywhere on Earth, people have common needs. They want to matter, t
 * Testing theories
 * Free exchange of ideas
 * "Convincing someone to change their mind is really the process of convincing them to change their tribe, and that's why it's so difficult to do." - https://www.linkedin.com/feed/update/urn:li:activity:6824024102706147328/
+* Thesis antithesis synthesis - being comfortable with the interplay of orthoganal mutually contradictory ideas.
 
 
 Resources:
